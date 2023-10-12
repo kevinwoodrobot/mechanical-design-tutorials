@@ -1,0 +1,1 @@
+Favorite vendors include McMaster, Misumi, and SDP/SI. 
